@@ -276,3 +276,147 @@ You could practically cut the tension in the air with a knife.
 Except there is one little thing that’s already cutting the tension quite a
 bit…
 Um, am I allowed to ask about this?
+Fiel, why are you hanging off Ronandt?
+Since there’s a little girl clinging to his back, Mera just looks like some
+jerk glaring at an old man and his granddaughter.
+What’s going on here?
+I don’t get it.
+Even Mera seems perplexed beneath his air of intimidation.
+I mean, can ya blame him?
+“What a petty fellow, to get so worked up over such a trifling matter.
+Indeed, this esteemed personage here has remained calm, eh? She clearly
+knew that I did not truly intend to use that magic.”
+Yeah, sure, except the main reason I’m not moving is that I’m totally
+thrown off by the fact that Fiel is hanging off your back.
+A smirking old geezer with a little girl on his back…
+Seriously, what’s up with this guy?
+“You see, I happen to have some shared history with your esteemed
+friend. Of course, my existence is surely of little consequence to her, but that
+is why I thought to introduce myself now, that she might learn my name.”
+Um, okay. I already know your name.
+Besides, you keep showing up in such memorable ways, I’m pretty sure I
+couldn’t forget you even if I tried.
+“My name is Ronandt Orozoi. Head mage of the imperial court of the
+Renxandt Empire.”
+He gives such a dramatic introduction that I can almost hear a DUN-
+DUN-DUUUN!
+And then, Fiel pulls on his cheeks.
+Now there’s an old man standing in front of me making a frog face.
+“PFFT?!”
+Mera lets out a snort.
+I barely manage to hold back a spit take myself.
+How’s anyone supposed to keep it together when you make a weird face
+at a time like that?!
+Any professional comedian would kill for that level of humor!
+I’ve got no choice but to laugh at this!
+Shoot. I gotta get out of here or I’m gonna burst out laughing.
+“Let’s go.”
+“Erm, are you quite certain?”
+I nod firmly at the utterly baffled Mera.
+Quick, retreat while my abs and face muscles are still doing their job!
+I turn my back on the old man, who’s still frozen with a frog face, and
+swiftly walk away.
+“What have you done, you little rascal?!”
+I pretend not to hear the person shouting behind me.
+Mera keeps glancing over his shoulder at the geezer, but I keep striding
+away without hesitation, forcing him to follow after me.
+It almost sounded like someone cried out, “P-please, come back!” behind
+me, but I’m sure it’s not directed at me.
+Must be part of their new comedy act or something.
+So obviously I shouldn’t go back there.
+Oof, I haven’t even met with the reincarnations yet and I’m already
+exhausted all of a sudden.
+No waaay.
+While that run-in with a weird old man took the wind out of my sails, I
+still let Mera lead the way for the sake of breakfast, and we arrive at a tree
+house similar to the one I slept in.
+The demon army does have tents and such for camping, but obviously a
+building with a proper roof is the more comfortable choice.
+Even if some of the areas got razed to the ground, the excessively large elf
+village still has plenty of space for us to use.
+There’s no reason not to take advantage, especially since it’s not like
+anyone else is using them anymore.
+“Oh? Good morning.”
+In the tree house, Vampy is elegantly eating breakfast.
+The wooden plates, presumably belonging to the prior owners of the
+house, are loaded with all kinds of food.
+The portion sizes are nothing crazy, since it’s just breakfast, but there’s
+certainly a wide variety of options to make your mouth water.
+Bread, salad, fruit, steaks cut into bite-size pieces, scrambled eggs…
+It’s a much more luxurious breakfast than you’d expect the day after a
+battle, and there’s Vampy, digging in daintily with a knife and fork.
+What are you, nobility?!
+Ah, I guess she really was born into a noble family.
+“Please prepare portions for two more people,” Mera instructs his
+subordinate in the back.
+Looks like they’re using this place as a special dining hall for officers and
+such.
+The subordinate immediately withdraws farther into the back to carry out
+his orders.
+There must be a kitchen back there, I guess.
+And wait, two more people? Is Mera gonna eat with us, then?
+It feels like it’s been ages since I saw Vampy and Mera sit down for a
+meal together.
+Mera is technically Vampy’s servant, after all.
+It must feel kinda weird for him to eat with his master.
+Although it’s a little late for that now, since they always ate together
+during our journey from Sariella to the demon territory.
+Plus, Mera’s official position as a commander technically outranks
+Vampy’s…
+Hmm?
+When you put it that way, isn’t Vampy the one out of place eating here?
+Mera and I are both commanders, but Vampy doesn’t even have a rank,
+does she?
+What do the demon army soldiers who don’t know anything about the
+situation make of this, I wonder?
+Hmm…? Well, she does get officer treatment here. Maybe they’ve got
+some idea what’s going on?
+As I reflect on these pointless matters, Mera pulls out a chair for me.
+Huh?! I’m seated all of a sudden!
+What a gentleman!
+Is this the power of chivalry?!
+By the time I’m done marveling, Mera is already seated.
+On closer inspection, Mera’s face looks pale with fatigue.
+I can’t blame him—he fought the elves all day, then cleaned up after the
+battle all night.
+Doesn’t seem like he’s been eating much, either.
+Otherwise, I doubt he would sit down to eat with me and Vampy.
+He’d probably eat by himself to be polite.
+I imagine there’s no one else here besides Vampy, because they’re all
+working or sleeping off their exhaustion, too.
+It feels really weird to see two vampires eating breakfast at the break of
+dawn, though.
+“Ms. Ariel is sleeping. Kyouya is guarding her. I’ve no idea where
+Phelmina is.”
+Evidently guessing my thoughts, Vampy tells me what the rest of the
+usual gang is doing.
+No idea about Phelmina, though, huh?
+Knowing her, I’m sure she’s working her butt off, but that poor girl
+doesn’t leave much of an impression.
+In fact, Phelmina is my subordinate. If anyone should know what she’s
+doing, it should be me, right?
+…It’s fine! Nothing to worry about!
+Yeah, for sure. Probably.
+“Oh, and Kusama went to see the other reincarnations. I imagine they’re
+eating breakfast together by now, perhaps?”
+Kusama, Kusama… Oh, right.
+The kid who was raised by the church and sucks at being a ninja.
+Turns out Kusama’s father is one of the pontiff’s secret intelligence
+agents, which is how the pontiff found out about reincarnations in the first
+place.
+He also recruited Kusama himself as an agent and trained him.
+We were introduced to him when we formed a temporary alliance with the
+pontiff against the elves.
+He was relatively friendly with Mr. Oni in their previous lives, I think.
+They were chatting during the breaks between our meeting with the pontiff.
+Not that I got involved much. People like Vampy and me can’t quite keep
+up with Kusama’s high energy.
+Even back in his old life, Kusama was always kind of a class clown, life-
+of-the-party guy.
+Shadowy types like me and Vampy can’t hang out with sunny types like
+him…
+Why did someone loud and flashy like Kusama get a unique skill like
+Ninja? Probably because his name is “Shinobu” or some stupid reason like
+that.
+Knowing D, it wouldn’t surprise me.
+Funny, though…
